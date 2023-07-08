@@ -18,4 +18,4 @@ Technical Support at [Bayes Esports](https://www.bayesesports.com/)🎮
 #### 📇 Contact & Social Media
 
 - [Linkedin](https://www.linkedin.com/in/marcos-andrade-10986b231/)<br>
-- [Email](marcosandradebp@hotmail.com)
+- [marcosandradebp@hotmail.com](marcosandradebp@hotmail.com)
